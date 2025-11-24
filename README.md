@@ -53,7 +53,6 @@ Uncover the powerful stories hidden within global health statistics and contribu
 
 ![Screenshot 2025-06-03 162854](https://github.com/user-attachments/assets/da44a4c8-1f1b-47d8-adb7-80a107875042)
 
-![Screenshot 2025-06-03 162924](https://github.com/user-attachments/assets/a230cdfe-987a-4330-9ec0-30a8a4ac039f)
 <img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/d963315b-4d62-41b8-9e03-d0fe83eec074" />
 
 
